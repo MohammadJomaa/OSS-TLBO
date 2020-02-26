@@ -7,7 +7,7 @@ https://drive.google.com/file/d/1OaJM7T5_R8e05OQVKmQ3rn843QtFCguR/view?usp=shari
 *******************************************************************************************
 
 Apply OSS-TLBO on Resource Allocation in cloud competing environment in Arabic 
-https://drive.google.com/file/d/14Y0-y6CAgvQu45JhKW2tVW_pbdAOEOzz/view?usp=sharing
+https://drive.google.com/file/d/1vCORTzakAnquntftQTMmgTSSnp8VI1r4/view?usp=sharing
 
 *******************************************************************************************
 Apply OSS-TLBO on Resource Allocation in cloud competing environment in English
